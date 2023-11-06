@@ -1,8 +1,6 @@
 # GREGORY MARSHALL
 
-```
-gregorymarshall@outlook.com | 206 - 335 - 4047 | http://www.linkedin.com/in/gregorymarsha11
-```
+gregorymarshall@outlook.com | 206-335-4047 | [LinkedIn](https://www.linkedin.com/in/gregorymarsha11)
 
 ---
 >## SENIOR TECHNICAL WRITER, CONTENT DEVELOPMENT
